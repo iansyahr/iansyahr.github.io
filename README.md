@@ -1,4 +1,4 @@
-## Halo semua 😄✋
+## Halo semua ✋😄
 
 ------
 
